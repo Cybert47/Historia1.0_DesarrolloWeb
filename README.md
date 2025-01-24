@@ -8,3 +8,9 @@ Había una vez un monito llamado Milo que vivía en una selva llena de aventuras
 Sin embargo, la vida en la Universidad de Selvalandia no era tan fácil como Milo había imaginado. Atraído por la emoción de las fiestas y diversiones, comenzó a desviarse de su camino. Conoció a un enorme elefante llamado Vale, que siempre estaba rodeado de amigos y diversión. Vale le ofreció un mundo lleno de vicios y fiestas interminables. Poco a poco, Milo dejó a sus verdaderos amigos de lado, olvidando sus sueños y pasiones.
 
 Vale, a pesar de su gran tamaño, era un compañero engañoso. Las noches de diversión se convirtieron en días de resaca y, al final, Milo se dio cuenta de que había perdido su rumbo. En un momento de lucidez, decidió regresar a su camino, pero fue demasiado tarde. Una noche, mientras intentaba huir de una situación complicada, Milo tropezó y se cayó justo en el camino de la enorme Vale, que, sin darse cuenta, lo aplastó.
+
+La selva lloró la pérdida de Milo. Sus amigos, que siempre habían estado ahí para apoyarlo, lamentaron no haber podido salvarlo de sus malas decisiones. En su memoria, decidieron organizar un festival de conocimiento en la Universidad de Selvalandia, donde compartieron historias y aprendizajes. SE COMO MILO
+
+usuario Cybert47= Esteban Hernandez Parra 
+Usuario Amy jeanine = Amy Jeanine Nossa Ramirez 
+Usuario Manuelcavamugen =Manuel Jose Cardozo 
